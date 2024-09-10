@@ -1,2 +1,2 @@
 Portfolio
- My personal details
+ My personal 
